@@ -1,2 +1,1 @@
-# kiu0209.github.io
-just a startup demo of the profile
+好簡單好醜體諒吓 得閒會優化
